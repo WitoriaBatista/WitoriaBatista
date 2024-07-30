@@ -9,4 +9,4 @@
  gosto de conversar,ler,jogar jogos onlines e discutir sobre tudo!🎀
 ![](https://media1.tenor.com/m/ZvmRpLwbB4MAAAAC/pucca.gif)
 
-
+gosto bastante dos meus amigos e não gosto de ficar sozinha.
